@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Johnniewalker1997
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning how to learn
